@@ -41,3 +41,19 @@ I was born on 8-15-1382 in the Persian calendar (equal to November 6, 2003 in th
 - **Image Editor**
 - **Video Editor**
 
+## What I do
+Currently, I'm a student and also trying to freelance on the side. I'm passionate about learning and exploring new professions, aiming to make the most of my life. My focus is mainly on programming, university studies, and a few other commitments, though unfortunately, I don't have much time for leisure activities.
+
+## My overall goal 
+My ultimate goal is to enjoy life and learn. I see learning as an integral part of enjoying life, and achieving these goals requires sacrificing certain other things. Like everyone else, I have material desires such as a home and a car, which are tools for stability and furthering my goals, not the goals themselves.
+
+**In conclusion, I reiterate that my entire purpose revolves around enjoying life and learning.**
+
+## My Social Media 
+- **Linkdin :** https://www.linkedin.com/in/rezadadfarr/  ( double "r" )
+- **Instagram :** https://www.instagram.com/itc_dadfar ( This account is also personal and no posts are made on it. :) )
+- **Telegram :**  https://t.me/MR_R_POW ( The best way to message me )
+
+
+
+###**the END**
